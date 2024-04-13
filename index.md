@@ -14,7 +14,7 @@ Dr. Andreas Kalker, em seu livro Saúde Proibida - Nada é incurável, apresenta
 
 [Protocolo D: como Dermatológico, aplicado sobre a pele](https://www.brighteon.com/8a11fe40-6a09-4608-8613-12e28c5cab2c);
 
-[Protocolo E: como clistEr, lavagem intestinal](https://www.brighteon.com/ed8063ea-4ae2-4699-9973-426bdace3294);
+[Protocolo E: como clister, lavagem intestinal](https://www.brighteon.com/ed8063ea-4ae2-4699-9973-426bdace3294);
 
 [Protocolo F: como Frequente, o antigo protocolo vírico 115](https://www.brighteon.com/0da584fb-27a2-4c94-99fd-fa2c2b2f5c02);
 
